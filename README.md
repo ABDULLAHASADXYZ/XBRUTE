@@ -3,7 +3,7 @@
 
 
 
-For any questions, please contact [rdWei](https://www.instagram.com/abdullah.net.io/)
+For any questions, please contact [ABDULLAH.NET](https://www.instagram.com/abdullah.net.io/)
 
 _I'll only respond to those proposals that are a good match for my schedule and interests, thank you._
 ---
